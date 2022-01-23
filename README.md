@@ -1,1 +1,1 @@
-https://bakww17.github.io/coce.github.io/
+https://bakww17.github.io/color.github.io/
